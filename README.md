@@ -16,7 +16,7 @@ Welcome to *my* GitHub—aka the place where magic happens (or where I spend way
   - Tech initiatives that help women take over the world (step aside, patriarchy).  
 
 - 📫 **How to reach me:**  
-  If you’ve got an offer I can’t refuse (or just a really good meme), slide into my DMs on [LinkedIn](https://) or email me at **[YourEmail@example.com](mailto:YourEmail@example.com)**.  
+  If you’ve got an offer I can’t refuse (or just a really good meme), slide into my DMs on [LinkedIn](https://www.linkedin.com/in/matron-esther/) or email me at **[YourEmail@example.com](mailto:matronesther3@gmail.com)**.  
 
 - 😄 **Pronouns:**  
   She/Her—obviously.  
