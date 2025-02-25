@@ -1,6 +1,6 @@
 # 💁‍♀️ Hey there, I’m Esther Haunga! 🌸✨  
 
-Welcome to *my* GitHub—aka the place where magic happens (or where I spend way too much time arguing with my code, but let’s keep that between us).  
+Welcome to *my* GitHub aka the place where magic happens (or where I spend way too much time arguing with my code, but let’s keep that between us).  
 
 ### 🦄 A little about me:  
 - 👀 **I’m interested in:**  
